@@ -1,1 +1,1 @@
-um what am i doing 
+Still easier than squarespace!
